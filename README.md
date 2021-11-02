@@ -1,1 +1,1 @@
-{"open": 0, "url": "https:\/\/www.bong998.co"}
+{"open": 0, "url": "https:\/\/www.bong168.co/?isNativeApp=true"}
